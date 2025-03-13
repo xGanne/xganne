@@ -21,4 +21,4 @@
 
 ---
 
-🔹 Sempre em busca de novos desafios e oportunidades! Se quiser bater um papo, entre em contato. 😃
+🔹 Sempre em busca de novos desafios e oportunidades! Se quiser bater um papo, entre em contato.
