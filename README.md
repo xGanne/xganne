@@ -51,6 +51,9 @@
   </a>
 </div>
 
+### ✍️ Quotes
+![](https://quotes-github-readme.vercel.app/api?type=horizontal&theme=dark)
+
 ###
 
 <br clear="both">
